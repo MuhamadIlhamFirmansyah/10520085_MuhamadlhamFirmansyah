@@ -1,0 +1,1 @@
+saya dari semester 6 studi Sistem Informasi.
